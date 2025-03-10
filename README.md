@@ -11,8 +11,8 @@
 6. **Unlimited Checking** - Allows an unlimited number of email validations.
 
 ## Contact:
-If you want to purchase, contact me via telegram [https://t.me/alexrony21](https://t.me/alexrony21)
+**If you want to purchase, contact me via telegram [https://t.me/alexrony21](https://t.me/alexrony21)**
 
-Note: This tool is designed for marketers and businesses. If you engage in any illegal activities using this tool, the author will not take any responsibility.
+**Note:** This tool is designed for marketers and businesses. If you engage in any illegal activities using this tool, the author will not take any responsibility.
 
-Thanks!
+**Thanks!**
